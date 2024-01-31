@@ -1,6 +1,6 @@
 <h1>Features That Make Online Gambling Popular in India</h1>
 Many Betting Options and Markets
-Sports betting has become a popular form of entertainment in the country. With the increasing popularity of gambling, < ahref=""></ahref="https://www.cricadda.com">many Online Betting Sites like CRICADDA </a> offer you all kinds of betting options and games.
+Sports betting has become a popular form of entertainment in the country. With the increasing popularity of gambling, many Online Betting Sites like CRICADDA offer you all kinds of betting options and games.
 The more options for placing bets, the better chance to win Big. Some websites like cricadda have dozens of markets available for you to choose from and others have only a few. The more markets offered by your website, the greater your chances of finding something you like.
 You should also look for a platform that offers many different games like cricadda gives you 270+ live games so you can play whatever interests you most to win your bets.
 Great Promotions and Bonuses
@@ -36,7 +36,7 @@ Besides the impact of investment at a local level, there are clear and obvious r
 <h2>Final Thoughts</h2>
 Online betting is growing and is expected to grow further, with more states adopting simple rules to regulate online betting more easily. As more betting sites open in India, punters will have great odds, bonuses, and betting markets to bet on their favorite sports and teams
 Online betting is growing and is expected to grow further, with more states adopting simple rules to regulate online betting more easily. As more betting sites open in India, punters will have great odds, bonuses, and betting markets to bet on their favorite sports and <h2>teams</h2>
-< ahref=""></ahref="https://www.cricadda.com">Cricadda - Trust of India </a>
+<ahref="https://www.cricadda.com">Cricadda - Trust of India </a>
 Cricadda is the best online Betting site where people can Sign up and win money! Cricadda is Serving 24X7 Customer Support | 3 minutes Instant withdrawals. Cricadda is the best site in India to start your betting journey. 100000+ Users
 
 
